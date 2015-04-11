@@ -11,6 +11,11 @@ All the poems, I love.
 > A frog jumps into the pond,  
 > splash! Silence again.  
 
+##### No one travels
+
+> No one travels  
+> Along this way but I,  
+> This autumn evening.  
 
 
 
